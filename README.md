@@ -1,0 +1,2 @@
+# orifjon
+Komyuter
